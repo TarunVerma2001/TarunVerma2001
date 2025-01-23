@@ -28,7 +28,7 @@ I'm a **Full-Stack Developer** with a passion for crafting impactful, user-frien
 ---
 
 ### 📬 Let's Connect!  
-- **LinkedIn:** [https://www.linkedin.com/in/tarun-verma-0a1317192/(#)  
+- **LinkedIn:** [Click here](https://www.linkedin.com/in/tarun-verma-0a1317192)  
 - **Email:** [verma.tarun200109@gmail.com](mailto:verma.tarun200109@gmail.com)  
 
 ---
